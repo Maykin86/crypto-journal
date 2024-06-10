@@ -3,3 +3,4 @@
 7 June 2024 BASE NFT for Build minted
 8 June 2024 bought Degen Domain 
 9 Junne 2024 did Bera Chain tasks
+10 June 2024 minted Eggs NFT
