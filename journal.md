@@ -5,3 +5,4 @@
 9 Junne 2024 did Bera Chain tasks
 10 June 2024 minted Eggs NFT
 11 Junde 2024 did not get airdrop from zkSync
+12 Junde 2024 got Aethir Airdrop
