@@ -7,3 +7,4 @@
 11 June 2024 did not get airdrop from zkSync
 12 June 2024 got Aethir Airdrop
 13 June 2024 did Layer 3 Quests 
+14 Junde 2024 did BeraChain tasks
