@@ -9,3 +9,4 @@
 13 June 2024 did Layer 3 Quests 
 14 June 2024 did BeraChain tasks
 15 June 2024 bought scam token
+16 June 2024 did fuel tasks
