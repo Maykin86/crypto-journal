@@ -11,3 +11,4 @@
 15 June 2024 bought scam token
 16 June 2024 did fuel tasks
 17 June 2024 did not get ZK Drop
+18 June 2024 did Morph Testnet
