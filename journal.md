@@ -12,3 +12,4 @@
 16 June 2024 did fuel tasks
 17 June 2024 did not get ZK Drop
 18 June 2024 did Morph Testnet
+19 June 2024 did Taiko Mainet Tasks
