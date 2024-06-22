@@ -15,3 +15,4 @@
 19 June 2024 did Taiko Mainet Tasks
 20 June 2024 got LXP from Linea
 21 Junde 2024 got Talent Drop
+22 Junde 2024 did Layer3 quests
