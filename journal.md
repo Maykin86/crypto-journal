@@ -18,3 +18,4 @@
 22 Junde 2024 did Layer3 quests
 23 June 2024 got Rhino NFT
 24 June 2024 started daily streak on farcaster
+25 June 2024 did Taiko bridges
