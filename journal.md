@@ -19,3 +19,4 @@
 23 June 2024 got Rhino NFT
 24 June 2024 started daily streak on farcaster
 25 June 2024 did Taiko bridges
+26 June 2024 did onefootball 
