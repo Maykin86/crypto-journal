@@ -20,3 +20,4 @@
 24 June 2024 started daily streak on farcaster
 25 June 2024 did Taiko bridges
 26 June 2024 did onefootball 
+27 June 2024 did Xion tasks
