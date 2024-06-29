@@ -22,3 +22,4 @@
 26 June 2024 did onefootball 
 27 June 2024 did Xion tasks
 28 June 2024 did layer3 quests
+29 June 2024 did BeraChain quests
