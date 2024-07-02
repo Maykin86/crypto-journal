@@ -25,3 +25,4 @@
 29 June 2024 did BeraChain quests
 30 June 2024 did Soyer deposit + staking
 1 Juli 2024 did Linea Layer3 quests
+2 Juli 2024 did Layer3 quests
