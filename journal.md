@@ -27,3 +27,4 @@
 1 Juli 2024 did Linea Layer3 quests
 2 Juli 2024 did Layer3 quests
 3 Juli 2024 did got Well3 airdrop
+4 June 2024 did Taiko tasks
