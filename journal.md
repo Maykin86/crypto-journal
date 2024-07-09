@@ -31,3 +31,4 @@
 5 June 2024 did Linea quests
 6 June 2024 did Berachain quests
 7 June 2024 did Layer3 quests
+8 June 2024 did solana farcaster
